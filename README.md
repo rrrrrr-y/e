@@ -12,6 +12,7 @@ About being childish, about being funny, about the soul, about love.
 来去聚散不过一场小别，
 无问归期。
 
+I' m sorry for being rude.
 My best angel.
 My love.
 My one and only.
