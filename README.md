@@ -14,6 +14,6 @@ About being childish, about being funny, about the soul, about love.
 
 My best angel.
 My love.
-My one and one.
+My one and only.
 
 🌷👗👔🎋
