@@ -12,20 +12,4 @@ About being childish, about being funny, about the soul, about love.
 来去聚散不过一场小别，
 无问归期。
 
-To R:
-
-I' m sorry for being rude.<br>
-But I don't want to disguise, I need response and embrace, or, just you.<br>
-My best angel.
-My love.
-My one and only.<br>
-
-If you need me, I have never left.<br>
-
 🌷👗👔🎋
-
-Pack
-
-Wait
-
-Best wishes.
