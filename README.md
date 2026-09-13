@@ -15,7 +15,7 @@ About being childish, about being funny, about the soul, about love.
 To R:
 
 I' m sorry for being rude.<br>
-
+But I don't want to disguise, I need response and embrace, or, just you.<br>
 My best angel.
 My love.
 My one and only.<br>
@@ -23,3 +23,6 @@ My one and only.<br>
 If you need me, I have never left.<br>
 
 🌷👗👔🎋
+Pack
+Wait
+Best wishes.
